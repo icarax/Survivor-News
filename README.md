@@ -1,3 +1,3 @@
 # Survivor-News
 Transformice Survivor Information
-suht p
+Survivoojk 10-6 Itipb
